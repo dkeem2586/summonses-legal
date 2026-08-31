@@ -2,7 +2,7 @@ Terms of Use — Dkeem
 
 Last updated: 8-31-26
 
-Thank you for downloading Summonses ("this App"), provided by Summonses ("we," "us," or "our"). Your use of this App and any purchase you make are subject to these Terms of Use, our Privacy Policy (incorporated by reference), and all applicable laws. Please read these Terms carefully before using the App.
+Thank you for downloading Summonses ("this App"), provided by Dkeem ("we," "us," or "our"). Your use of this App and any purchase you make are subject to these Terms of Use, our Privacy Policy (incorporated by reference), and all applicable laws. Please read these Terms carefully before using the App.
 
 By using the App, you agree to be bound by these Terms. If you do not agree, you are not authorized to use the App and must exit it.
 
